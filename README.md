@@ -42,8 +42,8 @@ Keep your private keys and passwords secure.
 Need Help? Contact Us!
 If you have questions or need assistance, feel free to reach out:
 
-Telegram: @drewz_toolz
-WhatsApp: Click here to chat
+Telegram @drewz_toolz
+WhatsApp: [Click here](https://wa.me/+1) to chat
 We’re here to help you navigate your crypto journey!
 
 Final Thoughts
